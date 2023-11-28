@@ -1,6 +1,6 @@
 ### school
-🏫FJU  \
+🏫FJU  
 
 ### sport
-🏃‍♀️bedminton  \
+🏃‍♀️bedminton  
 
